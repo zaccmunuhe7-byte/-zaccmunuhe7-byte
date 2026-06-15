@@ -77,7 +77,7 @@
 
 **University of Nairobi**
 
-Bachelor of Science in Technology Education
+Bachelor of Science and Technology ie MICRPOCESSORBB TECHNOLOGY,
 (Control & Instrumentation Engineering)
 
 Focus Areas:
